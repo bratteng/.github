@@ -1,1 +1,1 @@
-# Hello, we are Bratteng Solutions
+# Hello, we are Bratteng
